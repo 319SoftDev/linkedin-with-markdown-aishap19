@@ -19,3 +19,6 @@ _17 years old_
 _Warby Parker Work Place Challenge_
 
 _Youth Leading_
+
+##### **Favorite Animal:**
+![turtle](https://www.fisheries.noaa.gov/s3//styles/full_width/s3/dam-migration/hawksbill_sea_turtle.jpg?itok=cxzcge8K) 
